@@ -1,5 +1,0 @@
-github update
-check the pull man
-sfdugiiiiccsvnbghdghjalnzmx
-daviuuuuuuuuuuuuuuhxjzk
-adfauiiiiixhjkn
